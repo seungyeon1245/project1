@@ -45,3 +45,5 @@ tkghl70@gmail.com
 ## 🔗 GitHub
 [https://github.com/seungyeon1245](https://github.com/seungyeon1245)
 
+## 추천인
+광운대학교 정보융합학부 박규동 교수
